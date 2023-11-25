@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pappy-Da-Ripper
-- 👀 I’m interested in plundering
-- 🌱 I’m currently learning sailing the high seas.
+- 👀 I’m interested in plundering and sailing the high seas.
+- 🌱 I’m currently learning where you keep your gold and rum.
 - 💞️ I’m looking to collaborate on burying something near an inconspicuous "X" on the ground. 
 - 📫 How to reach me by putting your message in a bottle and tossing to the sea.
 
